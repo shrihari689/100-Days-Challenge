@@ -8,5 +8,5 @@ If this helped you, also if you find an optimal solution for it, just ping me wi
 
 With 💙,
 # Shri Hari L
-🚀 Telegram - [Open Telegram](https://t.me/shrihari689)
-📧 Email - [shrihari689@gmail.com](mailto:shrihari689@gmail.com)
+- 🚀 Telegram - [Open Telegram](https://t.me/shrihari689)
+- 📧 Email - [shrihari689@gmail.com](mailto:shrihari689@gmail.com)
